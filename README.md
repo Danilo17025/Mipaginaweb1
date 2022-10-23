@@ -1,2 +1,0 @@
-# mipaginaweb
-hecha por mi
